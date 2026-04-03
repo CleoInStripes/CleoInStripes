@@ -4,4 +4,4 @@
 - I'm not super interested in colaberation at the moment, but that could change in the future!
 -  How to reach me at my email < Cleoinstripes@gmail.com >
 -  Pronouns: He/They
--  Fun fact: My favorite games are Hollow Knight, Celeste, and Minecraft!
+-  My favorite games are Hollow Knight, Celeste, and Minecraft!
